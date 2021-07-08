@@ -18,6 +18,7 @@ Lennard Boetcher does not even know my name but yet I was able to buy his softwa
 
 I will play nice with Lennard though since according to him the only files that were not under "Steams Workshop License" were "LBmaster_GroupsServer_nolicencingserver" and "LBmaster_GroupsServer_orig." He claims these files are under an NDA (Non-Disclosure-Agreement) which is false. If that were to be the case then sue me, I have never, nor will I ever sign shit for you.
 
+Plese forward any form of DMCA/Copyrite Strike/Takedown directly to: flipperovr@protonmail.com . Thanks! 
 
-Love, Elijah (FlipperOver)
+Love, Elijah (FlipperOver, Flipper, Wiskers, Broken Crayon)
 
